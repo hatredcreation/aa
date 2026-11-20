@@ -9,5 +9,10 @@ Music sometimes becomes my lifeline. Not that often.
    • darkshippers (toxic) 
   • pedophiles (DNI) 
     •that they like the v*re. 
- • really screwed. (｡・´_｀・｡)
+ • really screwed. (｡・´_｀・｡) 
+Well, basically, they're all the ID numbers that usually appear in these things. Racism, homophobia, necrology, etc. etc... 
+
+
+
+
 
